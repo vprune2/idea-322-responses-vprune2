@@ -8,4 +8,6 @@ In naive, or pure, Camp, the essential element is seriousness, a seriousness tha
 # 8  
 Camp is a vision of the world in terms of style - but a particular kind of style. It is the love of the exaggerated, the "off", of things-being-what-they-are-not.  
 
-![two women dressed lavishly and wearing hats resembling female gentalia](
+![two women dressed lavishly and wearing hats resembling female gentalia](vaghats.jpg)
+
+
