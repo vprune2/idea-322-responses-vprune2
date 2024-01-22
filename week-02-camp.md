@@ -7,8 +7,8 @@ In naive, or pure, Camp, the essential element is seriousness, a seriousness tha
 
 Image of the 2000s emo scene style 
 
-# 8  
-Camp is a vision of the world in terms of style - but a particular kind of style. It is the love of the exaggerated, the "off", of things-being-what-they-are-not.  
+# 28  
+Again, Camp is the attempt to do somehting extraordinary. But extraordinary in the sense, often, of being special, glamorous. (The curved line. The extravagant gesture.) Not extraordinary merely in the sense of effort.  
 
 ![two women dressed lavishly and wearing hats resembling female genitalia](vaghats.jpg) 
 ![woman in large dress with several forms of female genitalia on the skirt](vagdress.png)
