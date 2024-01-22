@@ -13,4 +13,9 @@ Again, Camp is the attempt to do somehting extraordinary. But extraordinary in t
 ![two women dressed lavishly and wearing hats resembling female genitalia](vaghats.jpg) 
 ![woman in large dress with several forms of female genitalia on the skirt](vagdress.png)
 
-Images from music video for the song Xanalá by Gaby Amarantos ft. Duda Beat
+Images from music video for the song Xanalá by Gaby Amarantos ft. Duda Beat  
+
+# 56  
+Camp taste is a kind of love, love for human nature. It relishes, rather than judges, the little triumphs and awkward intensitites of "character." Camp taste identifies with what it is enjoying. People who share this sensibility are not laughing at the thing they label as "a camp," they're enjoying it. Camp is a **tender** feeling.  
+
+![image of a teenage wolf girl in a bedroom talking on the phone](
